@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @oozaru01
+- 👀 I’m interested in gaming, devops, game cheating
+- 🌱 I’m currently learning devops, AI
+- ⚡ Fun fact: My CS FACEIT LEVEL is 8
